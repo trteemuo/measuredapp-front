@@ -1,2 +1,2 @@
 
-## <a href ='https://measuredapp.com'>Measured app/a>
+## <a href ='https://measuredapp.com'>Measured app
